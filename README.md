@@ -1,4 +1,7 @@
 # IPTV Yetkili Bayi, HD Yayın ve Kesintisiz İzleme!
+<a href="https://kaliteiptvtr5.com/">
+     <img src="http://hizliresims.com/kaliteiptvlogo.png" alt="beinsports" style="max-width: 100%; border: 2px solid #ddd; margin-top: 15px;">
+ </a>
 
 ## IPTV Nedir?
 IPTV (Internet Protocol Television), internet üzerinden televizyon yayınlarının izlenmesini sağlayan bir teknolojidir. Geleneksel uydu ve kablo yayınlarının aksine, IPTV doğrudan internet bağlantısı üzerinden çalışır ve kullanıcılara daha esnek bir izleme deneyimi sunar.
