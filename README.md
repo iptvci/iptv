@@ -1,6 +1,6 @@
 # IPTV Yetkili Bayi, HD Yayın ve Kesintisiz İzleme!
 ## <a href="https://kaliteiptvtr5.com/" title="beinsports">IPTV SATIN ALMAK İÇİN TIKLA</a>
-## <a href="https://t.me/kaliteiptv2" title="beinsports">TELEGRAM KANALIMIZ</a>
+## <a href="https://t.me/+WbA8WJyvHWUxNWM1" title="beinsports">TELEGRAM KANALIMIZ</a>
  <a href="https://kaliteiptvtr5.com/" title="beinsports">
      <img src="http://hizliresims.com/kaliteiptvlogo.png" alt="beinsports" style="max-width: 100%; border: 2px solid #ddd; margin-top: 15px;">
  </a>
